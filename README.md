@@ -1,4 +1,4 @@
 # Hola gente
 ### Estoy chataa
 buuuuu....
-![f80d17f5fc6240bb137b98436dbcf417](https://github.com/user-attachments/assets/f773cfef-4add-48ad-a4c9-5e0506174076)
+![cat-5665180_1280](https://github.com/user-attachments/assets/73b5981a-2ac5-478e-a99a-2c85dc082699)
